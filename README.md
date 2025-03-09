@@ -1,0 +1,1 @@
+# Muhamad-Saepul-Rizal_2306142_Praktikum_AI_2
